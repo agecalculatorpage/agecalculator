@@ -1,1 +1,1 @@
-https://www.agecalculator.page
+See https://www.agecalculator.page to use age calculator.
